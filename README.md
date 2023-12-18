@@ -1,4 +1,4 @@
-## UAS PBO PJJ
+## UAS PBO PJJ PENS
 
 - Nama : Juned Setiawan S
 - NRP : 3122510407
